@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RageVenom aka Manav Sharma
+- 👀 I’m interested in programming and making things with it like websites, softwares, games, and projects
+- 🌱 I’m currently learning full stack developmant and data analytics
+- 💞️ I’m looking to collaborate on projects that help me build my career fast.
+- 📫 How to reach me whatsapp no: 9718294970, email: manavvatssharma1221@gmail.com
